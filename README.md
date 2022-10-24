@@ -1,0 +1,1 @@
+# Le code est un gros bordel, demandes-moi car c'est la merde :)
